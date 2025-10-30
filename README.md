@@ -1,1 +1,0 @@
-# rithika-portfolio
